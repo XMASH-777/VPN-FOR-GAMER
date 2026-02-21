@@ -31,3 +31,8 @@
 
 [FREE FIRE MAX 2.121.1](https://www.mediafire.com/file/ar9cv00yae9jg5c/Free_Fire_MAX_2.121.1.apks/file)
 
+# 7
+<img width="1080" height="1091" alt="Screenshot_2026-02-21-11-23-49-89_40deb401b9ffe8e1df2f1cc5ba480b12" src="https://github.com/user-attachments/assets/0b959d43-4cc0-4293-b224-fa32aaff68c7" />
+
+[Vpn INDIA](https://www.mediafire.com/file/3p15ct9fas1usy2/VPN+India_1.147.apk/file)
+
